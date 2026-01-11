@@ -1,1 +1,1 @@
-www.luymes.design
+www.ontologic.tech
